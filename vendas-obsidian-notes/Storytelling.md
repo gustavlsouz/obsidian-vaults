@@ -1,0 +1,2 @@
+Recurso poderoso para [[Vendas]]
+

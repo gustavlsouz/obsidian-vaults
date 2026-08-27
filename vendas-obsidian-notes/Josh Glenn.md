@@ -1,0 +1,1 @@
+Criou um experimento com [[Rob Walker]] sobre [[Storytelling]] . Compraram várias quinquilharias de algumas centenas de dólares, e com uma descrição com uma história, venderam por muito mais dinheiro. No primeiro teste, venderam 128,74 dólares em quinquilharias por 3.6k dólares.
